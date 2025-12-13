@@ -1,1 +1,0 @@
-# Kolpanek.github.io
